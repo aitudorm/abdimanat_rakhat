@@ -1,0 +1,1 @@
+# abdimanat_rakhat
